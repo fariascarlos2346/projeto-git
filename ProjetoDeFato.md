@@ -1,0 +1,1 @@
+Permanência e consistêia na plantação, trara boa colheita.
